@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @The-Biomed
+- 👀 I’m interested in Spreading the knowlege about coding and how important it is
+- 💞️ I’m looking to collaborate on Projects to help you innovate and elevate your carrer
+- 📫 How to reach me : instagram and X via : 
+- ⚡ Fun fact: I am a biomedical Engineer but really into Coding so I became a Biomedical Software Engineer
